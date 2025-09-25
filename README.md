@@ -1,17 +1,17 @@
 <p align="center" dir="auto">
-<sub>call me izu or nathan </sub>
+<sub>call me dex or nathan </sub>
 
 <p align="center" dir="auto">
-<img src="https://i.postimg.cc/L5d0Bg62/Untitled529-20250918140348.png" style="max-width: 100%; "></p>
+<img src="ttps://i.postimg.cc/L5d0Bg62/Untitled529-20250918140348.png" style="max-width: 100%; "></p>
 
 <p align="center" dir="auto">
-<sub>Literally Izuku. <b><ins>BPD&ADHD.</ins></b> sign ata!</sub>
+<sub>Literally Katsuki. <b><ins>BPD&ADHD.</ins></b> sign ata!</sub>
 
 <p align="center" dir="auto">
 <sub>'Cause girl I was made for you, and girl you were made for me.</sub>
 
 <p align="center" dir="auto">
-<sub>C+H is welcome , and W2I :p</sub>
+<sub>C+H is welcome , and W2I </sub>
 
 
 
